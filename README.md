@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Machine Learning**
 
-- 📫 How to reach me **anitasinha25feb@gmail.com**
+- 📫 Reach me at **anitasinha25feb@gmail.com**
 
 
 <p align="left">
